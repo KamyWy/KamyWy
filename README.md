@@ -2,7 +2,7 @@
 - 👀 I’m interested in dti mostly <3
 - 🌱 I’m currently learning new things 
 - 💞️ I’m looking to collaborate on tik tok
-- 📫 How to reach me tik tok or instagram :]
+- 📫 How to reach me: dm on tik tok or instagram <3
 - 😄 Pronouns: she / her
   
 
